@@ -9,4 +9,4 @@ My second summer program was at University of California, Santa Barbara in Yang 
 
 With that being said I am currently looking for work and I bring two things to the table. I work hard and I bring a good attitude. I believe in making positive impact in this world and the first step in that is how you treat people, I couple that with an uncanny determination to reach any goal I set my mind to.
 
-![Picture of myself on Thiokol Snowcat.](images/Thiokol.png)
+![Picture of myself on Thiokol Snowcat.](images/Thiokol.jpg)
